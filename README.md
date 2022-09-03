@@ -1,1 +1,0 @@
-# minn0727.github.io
